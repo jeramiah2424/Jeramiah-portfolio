@@ -1,1 +1,0 @@
-# Jeramiah-portfolio
